@@ -27,7 +27,9 @@
 > 
 > *Experience the ultimate transformation from digital chaos to hyperfocus clarity through cutting-edge interactive web technology and premium sci-fi assets.*
 
----
+[💎⚡ SUPPORT THE HYPERFOCUS EMPIRE ⚡💎 – Donation & Sponsorship Portal](https://welshdog.github.io/hyperfocuszone.com-Support-Hub-/)
+
+> Join our Focus Warriors, Elite Agents, and Empire Builders to power next-gen ADHD-friendly tools!
 
 ## 🌟 **LIVE DEMO**
 
